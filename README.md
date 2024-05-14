@@ -1,4 +1,4 @@
 # iPhone-Apple
 Projeto Apple - Tudo sobre o iPhone 14 
 
-https://gyazo.com/b57d80f05c59db39f0cd9fad6f878cd8
+https://gyazo.com/867e5479d9563c175aecd66c907fb1f6
